@@ -1,2 +1,0 @@
-Cristian Jeldres
-Oscar espinoza
